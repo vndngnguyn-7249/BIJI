@@ -1,2 +1,2 @@
 # BIJI
-cty TNHH TM - SX &amp; DV BIJI
+BIJI Co ., LtD
