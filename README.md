@@ -1,2 +1,0 @@
-# BIJI
-BIJI Co ., LtD
